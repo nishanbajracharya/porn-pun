@@ -14,6 +14,7 @@ A list of movies/series which could have really interesting porn parody names.
 | How I Met Your Mother | How I Mate Your Mother |
 | Hollow Man      | Swallow Man   |
 | Inception       | Conception    |
+| King Kong | King Dong |
 | Lord of the Rings | Lord of the Rims |
 | Rick and Morty | Thick and Squirty |
 | Se7en | SeMen |
