@@ -1,4 +1,4 @@
-# Porn parodies
+# Porn pun
 
 A list of movies/series which could have really interesting porn parody names.
 
