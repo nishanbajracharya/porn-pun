@@ -15,7 +15,7 @@ A list of movies/series which could have really interesting porn parody names.
 | Forrest Gump | Forrest Hump |
 | Game of Thrones | Game of Bones |
 | Gangs of New York | Gangbangs of New York |
-| Good Will Hunting | Good Will Grunting |
+| Good Will Hunting |  Good Will Grunting |
 | Goodfellas | Woodfellas |
 | Harry Potter | Harry Nutter |
 | Harry Potter and the Deathly Hallows | Hairy Nutter and the Deathly Swallows |
@@ -32,7 +32,6 @@ A list of movies/series which could have really interesting porn parody names.
 | Se7en | SeMen |
 | Silence of the Lambs | Silence of the Clamps |
 | Snakes on a Plane | Sex on a Plane |
-| Saving Private Ryan | Having Private Ryan |
 | The Lives of Others | The Wives of Others |
 | The Incredibles | The Incrediballs |
 | Taxi Driver | Fake Taxi Driver |
