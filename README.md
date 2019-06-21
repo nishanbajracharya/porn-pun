@@ -33,3 +33,7 @@ A list of movies/series which could have really interesting porn parody names.
 | Taxi Driver | Fake Taxi Driver |
 | The Godfather | The Rodfather |
 | The Lives of Others | The Wives of Others |
+
+# Contributing
+
+[CONTRIBUTING.md](CONTRIBUTING.md)
