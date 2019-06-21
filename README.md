@@ -39,3 +39,7 @@ A list of movies/series which could have really interesting porn parody names.
 # Contributing
 
 [CONTRIBUTING.md](CONTRIBUTING.md)
+
+# Licence
+
+[WTFPL](LICENCE)
