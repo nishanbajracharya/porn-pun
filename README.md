@@ -10,7 +10,7 @@ A list of movies/series which could have really interesting porn parody names.
 | Fast and Furious | :stuck_out_tongue_winking_eye: |
 | Fantastic Four | Fantastic Foursome
 | Game of Thrones | Game of Bones |
-| Harry Potter | Hairy Nutter |
+| Harry Potter and the Deathly Hallows | Hairy Nutter and the Deathly Swallows |
 | How I Met Your Mother | How I Mate Your Mother |
 | Hollow Man      | Swallow Man   |
 | Inception       | Conception    |
