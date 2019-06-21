@@ -15,7 +15,7 @@ A list of movies/series which could have really interesting porn parody names.
 | Gangs of New York | Gangbangs of New York|
 |  Good Will Hunting |  Good Will Grunting |
 |  Goodfellas | Woodfellas |
-| Harry Potter | Harry Nutter |
+| Harry Potter and the Deathly Hallows | Hairy Nutter and the Deathly Swallows |
 | How I Met Your Mother | How I Mate Your Mother |
 | Hollow Man      | Swallow Man   |
 | Inception       | Conception    |
