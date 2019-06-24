@@ -1,6 +1,6 @@
 # Contributing
 
-Contributions to `porn-pun` are welcome. You can create an issue, request a feature or send in a PR yourself.
+Contributions to `punhub` are welcome. You can create an issue, request a feature or send in a PR yourself.
 
 ## Guidelines
 
