@@ -28,6 +28,7 @@ A list of movies/series which could have really interesting porn parody names.
 | James Bond | James Bondage <br/> James Blonde |
 | John Wick | John Dick |
 | King Kong | King Dong |
+| Kill Bill | Drill Bill |
 | Lord of the Rings | Lord of the Rims |
 | The Lion King | The Loin King |
 | Rick and Morty | Thick and Squirty |
