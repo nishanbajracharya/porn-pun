@@ -24,7 +24,6 @@ A list of movies/series which could have really interesting porn parody names.
 | How I Met Your Mother | How I Mate Your Mother |
 | Hollow Man | Swallow Man |
 | Inception | Conception |
-| Incredibles | Incredibums |
 | James Bond | James Bondage <br/> James Blonde |
 | John Wick | John Dick |
 | King Kong | King Dong |
@@ -40,7 +39,7 @@ A list of movies/series which could have really interesting porn parody names.
 | Snakes on a Plane | Sex on a Plane |
 | Spider-Man | Rider-Man |
 | The Lives of Others | The Wives of Others |
-| The Incredibles | The Incrediballs |
+| The Incredibles | The Incrediballs <br /> The Incredibums |
 | Taxi Driver | Fake Taxi Driver |
 | The Godfather | The Rodfather |
 | The Lives of Others | The Wives of Others |
