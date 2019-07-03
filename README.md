@@ -9,6 +9,7 @@ A list of movies/series which could have really interesting porn parody names.
 | A Million Ways to Die in the West | A Million Ways to Lie in the West |
 | A Clockwork Orange | A Cockwork Orange |
 | Breaking Bad | Breaking Dad |
+| Captain Marvel | Captain Navel |
 | Fast and Furious | :stuck_out_tongue_winking_eye: |
 | Fantastic Four | Fantastic Foursome |
 | Fight Club | Fist Club |
@@ -23,9 +24,12 @@ A list of movies/series which could have really interesting porn parody names.
 | How I Met Your Mother | How I Mate Your Mother |
 | Hollow Man | Swallow Man |
 | Inception | Conception |
+| Incredibles | Incredibums |
 | James Bond | James Bondage <br/> James Blonde |
+| John Wick | John Dick |
 | King Kong | King Dong |
 | Lord of the Rings | Lord of the Rims |
+| The Lion King | The Loin King |
 | Rick and Morty | Thick and Squirty |
 | Saving Private Ryan | Shaving Private Ryan <br/> Shagging Private Ryan |
 | School of Rock | School of Cock |
@@ -33,6 +37,7 @@ A list of movies/series which could have really interesting porn parody names.
 | Se7en | SeMen |
 | Silence of the Lambs | Silence of the Clamps |
 | Snakes on a Plane | Sex on a Plane |
+| Spider-Man | Rider-Man |
 | The Lives of Others | The Wives of Others |
 | The Incredibles | The Incrediballs |
 | Taxi Driver | Fake Taxi Driver |
