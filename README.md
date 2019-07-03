@@ -33,6 +33,7 @@ A list of movies/series which could have really interesting porn parody names.
 | King Kong | King Dong |
 | Kill Bill | Drill Bill |
 | Lord of the Rings | Lord of the Rims |
+| Mission Impossible | Missionary Impossible |
 | Moon | Moan |
 | Rick and Morty | Thick and Squirty |
 | Saving Private Ryan | Shaving Private Ryan <br/> Shagging Private Ryan |
