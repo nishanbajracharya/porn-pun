@@ -12,7 +12,7 @@ A list of movies/series which could have really interesting porn parody names.
 | Breaking Bad | Breaking Dad |
 | Black Hawk Down | Black Cock Down |
 | Captain Marvel | Captain Navel |
-| Charlie's Angels | Charlie's Anal |
+| Charlie's Angels | Charlie's Anals |
 | Dragon Ball Z | Drag on BallZ |
 | Fast and Furious | :stuck_out_tongue_winking_eye: |
 | Fantastic Four | Fantastic Foursome |
