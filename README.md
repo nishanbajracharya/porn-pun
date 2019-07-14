@@ -15,6 +15,7 @@ A list of movies/series which could have really interesting porn parody names.
 | Charlie's Angels | Charlie's Anals |
 | Dragon Ball Z | Drag on BallZ |
 | Fast and Furious | :stuck_out_tongue_winking_eye: |
+| Fantastic Beasts and Where To Find Them | Fantastic Breasts and Where To Find Them |
 | Fantastic Four | Fantastic Foursome |
 | Fight Club | Fist Club |
 | Forrest Gump | Forrest Hump |
