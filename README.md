@@ -27,6 +27,7 @@ A list of movies/series which could have really interesting porn parody names.
 | James Bond | James Bondage <br/> James Blonde |
 | King Kong | King Dong |
 | Lord of the Rings | Lord of the Rims |
+| Pulp Fiction | Pulp Friction |
 | Rick and Morty | Thick and Squirty |
 | Saving Private Ryan | Shaving Private Ryan <br/> Shagging Private Ryan |
 | School of Rock | School of Cock |
@@ -34,11 +35,13 @@ A list of movies/series which could have really interesting porn parody names.
 | Se7en | SeMen |
 | Silence of the Lambs | Silence of the Clamps |
 | Snakes on a Plane | Sex on a Plane |
+| The Da Vinci Code | The Da Vinci Load |
 | The Lives of Others | The Wives of Others |
 | The Incredibles | The Incrediballs |
 | Taxi Driver | Fake Taxi Driver |
 | The Godfather | The Rodfather |
 | The Lives of Others | The Wives of Others |
+| The X-Files | The Sex Files |
 
 # Contributing
 
