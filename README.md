@@ -46,8 +46,6 @@ A list of movies/series which could have really interesting porn parody names.
 | Snakes on a Plane | Sex on a Plane |
 | Spider-Man | Rider-Man |
 | The Da Vinci Code | The Da Vinci Load |
-| The Lives of Others | The Wives of Others |
-| The Incredibles | The Incrediballs |
 | The Incredibles | The Incrediballs <br /> The Incredibums |
 | Taxi Driver | Fake Taxi Driver |
 | The Godfather | The Rodfather |
