@@ -10,6 +10,10 @@ A list of movies/series which could have really interesting porn parody names.
 | American Pie | American Bi <br/> American Creampie |
 | A Clockwork Orange | A Cockwork Orange |
 | Breaking Bad | Breaking Dad |
+| Black Hawk Down | Black Cock Down |
+| Captain Marvel | Captain Navel |
+| Charlie's Angels | Charlie's Anals |
+| Dragon Ball Z | Drag on BallZ |
 | Fast and Furious | :stuck_out_tongue_winking_eye: |
 | Fantastic Four | Fantastic Foursome |
 | Fight Club | Fist Club |
@@ -24,9 +28,14 @@ A list of movies/series which could have really interesting porn parody names.
 | How I Met Your Mother | How I Mate Your Mother |
 | Hollow Man | Swallow Man |
 | Inception | Conception |
+| Interstellar | Interracial |
 | James Bond | James Bondage <br/> James Blonde |
+| John Wick | John Dick |
 | King Kong | King Dong |
+| Kill Bill | Drill Bill |
 | Lord of the Rings | Lord of the Rims |
+| Mission Impossible | Missionary Impossible |
+| Moon | Moan |
 | Pulp Fiction | Pulp Friction |
 | Rick and Morty | Thick and Squirty |
 | Saving Private Ryan | Shaving Private Ryan <br/> Shagging Private Ryan |
@@ -35,12 +44,17 @@ A list of movies/series which could have really interesting porn parody names.
 | Se7en | SeMen |
 | Silence of the Lambs | Silence of the Clamps |
 | Snakes on a Plane | Sex on a Plane |
+| Spider-Man | Rider-Man |
 | The Da Vinci Code | The Da Vinci Load |
 | The Lives of Others | The Wives of Others |
 | The Incredibles | The Incrediballs |
+| The Incredibles | The Incrediballs <br /> The Incredibums |
 | Taxi Driver | Fake Taxi Driver |
 | The Godfather | The Rodfather |
+| The Lion King | The Loin King |
 | The Lives of Others | The Wives of Others |
+| The Planet of The Apes | The Planet of The Rapes |
+| The Wolf of Wall Street | The Milf of Wall Street |
 | The X-Files | The Sex Files |
 
 # Contributing
