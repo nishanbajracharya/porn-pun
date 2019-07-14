@@ -14,6 +14,7 @@ A list of movies/series which could have really interesting porn parody names.
 | Captain Marvel | Captain Navel |
 | Charlie's Angels | Charlie's Anals |
 | Dragon Ball Z | Drag on BallZ |
+| Dawn of the Dead | Dong of the Dead |
 | Fast and Furious | :stuck_out_tongue_winking_eye: |
 | Fantastic Beasts and Where To Find Them | Fantastic Breasts and Where To Find Them |
 | Fantastic Four | Fantastic Foursome |
