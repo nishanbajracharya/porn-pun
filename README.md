@@ -35,6 +35,7 @@ A list of movies/series which could have really interesting porn parody names.
 | John Wick | John Dick |
 | King Kong | King Dong |
 | Kill Bill | Drill Bill |
+| Long Shot | Cum shot |
 | Lord of the Rings | Lord of the Rims |
 | Mission Impossible | Missionary Impossible |
 | Moon | Moan |
