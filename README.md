@@ -5,6 +5,7 @@ A list of movies/series which could have really interesting porn parody names.
 | Movie Name      |  Porn Parody  |
 |-----------------|:-------------:|
 | 12 Angry Men | 12 Horny Men <br/> 69 Angry Men |
+| 2001: A Space Odyssey | 2001: A Space Orgy |
 | Avengers: End Game | Avengers: Bend Game |
 | A Million Ways to Die in the West | A Million Ways to Lie in the West |
 | American Pie | American Bi <br/> American Creampie |
