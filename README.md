@@ -60,6 +60,7 @@ A list of movies/series which could have really interesting porn parody names.
 | The Planet of The Apes | The Planet of The Rapes |
 | The Wolf of Wall Street | The Milf of Wall Street |
 | The X-Files | The Sex-Files |
+| Thor | Vibrathor |
 
 # Contributing
 
