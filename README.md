@@ -41,6 +41,7 @@ A list of movies/series which could have really interesting porn parody names.
 | Lord of the Rings | Lord of the Rims |
 | Mission Impossible | Missionary Impossible |
 | Moon | Moan |
+| Mary Poppins | Cherry Poppins |
 | Pulp Fiction | Pulp Friction |
 | Rick and Morty | Thick and Squirty |
 | Saving Private Ryan | Shaving Private Ryan <br/> Shagging Private Ryan |
