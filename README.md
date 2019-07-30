@@ -12,6 +12,7 @@ A list of movies/series which could have really interesting porn parody names.
 | A Clockwork Orange | A Cockwork Orange |
 | Breaking Bad | Breaking Dad |
 | Black Hawk Down | Black Cock Down |
+| Black Widow | Blacked Widow |
 | Captain Marvel | Captain Navel |
 | Charlie's Angels | Charlie's Anals |
 | Dragon Ball Z | Drag on BallZ |
