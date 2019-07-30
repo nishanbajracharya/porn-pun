@@ -12,6 +12,7 @@ A list of movies/series which could have really interesting porn parody names.
 | A Clockwork Orange | A Cockwork Orange |
 | Breaking Bad | Breaking Dad |
 | Black Hawk Down | Black Cock Down |
+| Black Widow | Blacked Widow |
 | Captain Marvel | Captain Navel |
 | Charlie's Angels | Charlie's Anals |
 | Dragon Ball Z | Drag on BallZ |
@@ -20,6 +21,7 @@ A list of movies/series which could have really interesting porn parody names.
 | Fantastic Beasts and Where To Find Them | Fantastic Breasts and Where To Find Them |
 | Fantastic Four | Fantastic Foursome |
 | Fight Club | Fist Club |
+| Finding Dory | Binding Dory |
 | Forrest Gump | Forrest Hump |
 | Game of Thrones | Game of Bones |
 | Gangs of New York | Gangbangs of New York |
@@ -38,6 +40,7 @@ A list of movies/series which could have really interesting porn parody names.
 | Kill Bill | Drill Bill |
 | Long Shot | Cum Shot |
 | Lord of the Rings | Lord of the Rims |
+| Mary Poppins | Cherry Poppins |
 | Mission Impossible | Missionary Impossible |
 | Moon | Moan |
 | Pulp Fiction | Pulp Friction |
@@ -58,6 +61,7 @@ A list of movies/series which could have really interesting porn parody names.
 | The Planet of The Apes | The Planet of The Rapes |
 | The Wolf of Wall Street | The Milf of Wall Street |
 | The X-Files | The Sex-Files |
+| Thor | Vibrathor |
 
 # Contributing
 
