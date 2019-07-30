@@ -20,8 +20,8 @@ A list of movies/series which could have really interesting porn parody names.
 | Fantastic Beasts and Where To Find Them | Fantastic Breasts and Where To Find Them |
 | Fantastic Four | Fantastic Foursome |
 | Fight Club | Fist Club |
-| Forrest Gump | Forrest Hump |
 | Finding Dory | Binding Dory |
+| Forrest Gump | Forrest Hump |
 | Game of Thrones | Game of Bones |
 | Gangs of New York | Gangbangs of New York |
 | Ghostbusters | Nutbusters |
@@ -39,9 +39,9 @@ A list of movies/series which could have really interesting porn parody names.
 | Kill Bill | Drill Bill |
 | Long Shot | Cum Shot |
 | Lord of the Rings | Lord of the Rims |
+| Mary Poppins | Cherry Poppins |
 | Mission Impossible | Missionary Impossible |
 | Moon | Moan |
-| Mary Poppins | Cherry Poppins |
 | Pulp Fiction | Pulp Friction |
 | Rick and Morty | Thick and Squirty |
 | Saving Private Ryan | Shaving Private Ryan <br/> Shagging Private Ryan |
