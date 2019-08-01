@@ -59,6 +59,7 @@ A list of movies/series which could have really interesting porn parody names.
 | The Lion King | The Loin King |
 | The Lives of Others | The Wives of Others |
 | The Planet of The Apes | The Planet of The Rapes |
+| The Pursuit of Happyness | The Pursuit of Fappyness |
 | The Wolf of Wall Street | The Milf of Wall Street |
 | The X-Files | The Sex-Files |
 | Thor | Vibrathor |
