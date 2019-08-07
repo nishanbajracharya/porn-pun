@@ -52,6 +52,7 @@ A list of movies/series which could have really interesting porn parody names.
 | Silence of the Lambs | Silence of the Clamps |
 | Snakes on a Plane | Sex on a Plane |
 | Spider-Man | Rider-Man |
+| Spongebob Squarepants | Spongebob Squirtypants <br/> Spongebob Queerpants |
 | The Da Vinci Code | The Da Vinci Load |
 | The Incredibles | The Incrediballs <br /> The Incredibums |
 | Taxi Driver | Fake Taxi Driver |
