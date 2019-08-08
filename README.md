@@ -30,7 +30,7 @@ A list of movies/series which could have really interesting porn parody names.
 | Goodfellas | Woodfellas |
 | Harry Potter | Harry Nutter |
 | Harry Potter and the Deathly Hallows | Hairy Nutter and the Deathly Swallows |
-| How I Met Your Mother | How I Mate Your Mother |
+| How I Met Your Mother | How I Mate Your Mother <br/> How I Ate Your Mother |
 | Hollow Man | Swallow Man |
 | Inception | Conception |
 | Interstellar | Interracial |
@@ -59,11 +59,14 @@ A list of movies/series which could have really interesting porn parody names.
 | The Godfather | The Rodfather |
 | The Lion King | The Loin King |
 | The Lives of Others | The Wives of Others |
+| The Longest Day | The Longest Gay |
 | The Planet of The Apes | The Planet of The Rapes |
 | The Pursuit of Happyness | The Pursuit of Fappyness |
 | The Wolf of Wall Street | The Milf of Wall Street |
+| The World's Fastest Indian | :stuck_out_tongue_winking_eye: |
 | The X-Files | The Sex-Files |
 | Thor | Vibrathor |
+| When Harry Met Sally | When Harry Ate Sally |
 
 # Contributing
 
