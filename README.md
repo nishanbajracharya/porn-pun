@@ -47,6 +47,7 @@ A list of movies/series which could have really interesting porn parody names.
 | Pulp Fiction | Pulp Friction |
 | Rick and Morty | Thick and Squirty |
 | Saving Private Ryan | Shaving Private Ryan <br/> Shagging Private Ryan |
+| Scary Movie | Hairy Movie |
 | School of Rock | School of Cock |
 | Schindler's List | Schindler's Fist |
 | Se7en | SeMen |
