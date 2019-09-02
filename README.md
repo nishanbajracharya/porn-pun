@@ -2,6 +2,13 @@
 
 A list of movies/series which could have really interesting porn parody names.
 
+## Table of Contents
+
+* [Hollywood](#hollywood)
+* [Bollywood](#bollywood)
+
+## Hollywood
+
 | Movie Name      |  Porn Parody  |
 |-----------------|:-------------:|
 | 12 Angry Men | 12 Horny Men <br/> 69 Angry Men |
@@ -57,7 +64,7 @@ A list of movies/series which could have really interesting porn parody names.
 | Spider-Man | Rider-Man |
 | Spongebob Squarepants | Spongebob Squirtypants <br/> Spongebob Queerpants |
 | The Da Vinci Code | The Da Vinci Load |
-| The Incredibles | The Incrediballs <br /> The Incredibums |
+| The Incredibles | The Incrediballs <br/> The Incredibums |
 | Taxi Driver | Fake Taxi Driver |
 | The Godfather | The Rodfather |
 | The Lion King | The Loin King |
@@ -70,6 +77,23 @@ A list of movies/series which could have really interesting porn parody names.
 | The X-Files | The Sex-Files |
 | Thor | Vibrathor |
 | When Harry Met Sally | When Harry Ate Sally |
+
+## Bollywood
+
+| Movie Name      |  Porn Parody  |
+|-----------------|:-------------:|
+| Ahista Ahista | :stuck_out_tongue_winking_eye: |
+| Andaz Apna Apna | Anda Apna Apna |
+| Chak de! India | Chod de! India |
+| Dum Laga Ke Haisha | :stuck_out_tongue_winking_eye: |
+| Entertainment | Enter Ten Men |
+| Jab We Met | Jab We Mate |
+| Kabhi Khusi Kabhi Gum | Kabhi Pussy Kabhi Bum |
+| Kuch Kuch Hota Hai | Kuch Kuch Chota Hai |
+| Mere Baap Pehle Aap | :stuck_out_tongue_winking_eye: |
+| OMG: Oh My God! | OMG: Oh My Gaand! |
+| Pyaasa | :stuck_out_tongue_winking_eye: <br/> Pyaasi |
+| Rang De Basanti | Ang De Basanti |
 
 # Contributing
 
