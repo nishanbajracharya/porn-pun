@@ -32,6 +32,7 @@ A list of movies/series which could have really interesting porn parody names.
 | Fight Club | Fist Club |
 | Finding Dory | Binding Dory |
 | Forrest Gump | Forrest Hump |
+| Friday The 13th | Fuck me on my 18th |
 | Game of Thrones | Game of Bones |
 | Gangs of New York | Gangbangs of New York |
 | Ghostbusters | Nutbusters |
@@ -41,6 +42,7 @@ A list of movies/series which could have really interesting porn parody names.
 | Harry Potter and the Deathly Hallows | Hairy Nutter and the Deathly Swallows |
 | How I Met Your Mother | How I Mate Your Mother <br/> How I Ate Your Mother |
 | Hollow Man | Swallow Man |
+| I Know What You Did Last Summer | I Know Whom You Did Last Summer |
 | Inception | Conception |
 | Interstellar | Interracial |
 | James Bond | James Bondage <br/> James Blonde |
@@ -94,6 +96,7 @@ A list of movies/series which could have really interesting porn parody names.
 | OMG: Oh My God! | OMG: Oh My Gaand! |
 | Pyaasa | :stuck_out_tongue_winking_eye: <br/> Pyaasi |
 | Rang De Basanti | Ang De Basanti |
+| Sacred Games | Sacred Gays <br/> Secretly Gays |
 
 # Contributing
 
