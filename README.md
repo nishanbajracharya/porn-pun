@@ -32,7 +32,6 @@ A list of movies/series which could have really interesting porn parody names.
 | Fight Club | Fist Club |
 | Finding Dory | Binding Dory |
 | Forrest Gump | Forrest Hump |
-| Friday The 13th | Fuck me on my 18th |
 | Game of Thrones | Game of Bones |
 | Gangs of New York | Gangbangs of New York |
 | Ghostbusters | Nutbusters |
