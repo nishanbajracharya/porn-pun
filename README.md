@@ -88,8 +88,6 @@ A list of movies/series which could have really interesting porn parody names.
 | Chak de! India | Chod de! India |
 | Dum Laga Ke Haisha | :stuck_out_tongue_winking_eye: |
 | Entertainment | Enter Ten Men |
-| Grand Masti | :stuck_out_tongue_winking_eye: |
-| Great Grand Masti | :stuck_out_tongue_winking_eye: |
 | Jab We Met | Jab We Mate |
 | Kabhi Khusi Kabhi Gum | Kabhi Pussy Kabhi Bum |
 | Kuch Kuch Hota Hai | Kuch Kuch Chota Hai |
