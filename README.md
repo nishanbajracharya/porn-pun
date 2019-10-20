@@ -92,6 +92,7 @@ A list of movies/series which could have really interesting porn parody names.
 | Kabhi Khusi Kabhi Gum | Kabhi Pussy Kabhi Bum |
 | Kuch Kuch Hota Hai | Kuch Kuch Chota Hai |
 | Love Sex Aur Dhokha | :stuck_out_tongue_winking_eye: |
+| Masti | :stuck_out_tongue_winking_eye: |
 | Mere Baap Pehle Aap | :stuck_out_tongue_winking_eye: |
 | OMG: Oh My God! | OMG: Oh My Gaand! |
 | Pyaasa | :stuck_out_tongue_winking_eye: <br/> Pyaasi |
