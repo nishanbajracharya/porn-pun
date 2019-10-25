@@ -55,6 +55,7 @@ A list of movies/series which could have really interesting porn parody names.
 | Moon | Moan |
 | Pulp Fiction | Pulp Friction |
 | Rick and Morty | Thick and Squirty |
+| Rock of Ages | Cock of Ages |
 | Saving Private Ryan | Shaving Private Ryan <br/> Shagging Private Ryan |
 | Scary Movie | Hairy Movie |
 | School of Rock | School of Cock |
